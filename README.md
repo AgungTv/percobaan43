@@ -1,2 +1,0 @@
-# percobaan43
-tvpercobaan
